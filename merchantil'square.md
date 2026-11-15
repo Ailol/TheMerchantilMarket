@@ -1,4 +1,6 @@
-
+<div align="right">
+  <img width="175" height="197.5" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
+</div>
 <div align="center">
  <sub><sub>Tia & Ailo Fieldz present the compacted cognition formula:</sub></sub>
 <h1> The compacted cognition(meaning of a interaction) </h1> 
@@ -17,7 +19,6 @@
 
 <sub>  Finally! it has emerged, ragnaros portable hammer non BoE version!</sub>
 
- <img width="175" height="197.5" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
 
 <h5>The interakt</h5>
 
