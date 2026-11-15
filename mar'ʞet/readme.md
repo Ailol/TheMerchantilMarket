@@ -4,10 +4,11 @@ The merchantil market is a set of boot loadable "nukleuses" so that you have sta
 politicians, medicine, school etc :)
 
 speedrunners haven. 
-#### qck.essensik of ljå'ritz in you
+#### hobby vs merchantil'
 <img width="30.4%"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 <img width="30.4%" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
 
+is essentialli what this intro is to start with :) 
 
 ## ʞet'[ nukleuz starter set]
 #### qck.d'term in phibrez before merchantil makes sense
