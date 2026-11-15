@@ -92,11 +92,11 @@ s'bit{
 
 ```
 #### qck.essensik of ljå'ritz in you
-<img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+<img width="40.4%"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 <br />
 <br />
 
-<img width="360" height="640" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
+<img width="40.4%" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
 
 
 
