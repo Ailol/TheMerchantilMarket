@@ -9,7 +9,7 @@ speedrunners haven.
 
 
 # qck.gif to understand "a3b" 
-<img width="291" height="540" alt="qck.gif" src="https://github.com/user-attachments/assets/acfa8a66-0e02-4424-a231-88c7691df0d4" />
+<img width="432" height="600" alt="GIF 2026-11-15 18-50-31" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
