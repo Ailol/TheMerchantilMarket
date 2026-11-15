@@ -56,9 +56,11 @@ for a pro, thats a leave the fuck asap moment.
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
 ```
-qck.example{
-    enterprize - EMC
-    scale up - cet' speed of emc
-    company - partiklez towards company 
+d'termik[emc'setz the pace]
+
+q'bitz{
+    enterprize - EMC 
+    scale up - zet [ the ket'cet]
+    company - parr'matterz for me to be loyal.  
 }into(in seconds);*
 ```
