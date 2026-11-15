@@ -12,6 +12,18 @@ speedrunners haven.
 Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is the way, if you pro, well snake roll is the way.
 <br/>
 <br/>
+#### d'term needz room to wiggle initially. 
+#### t'snap is the "wax on"
+<img width="340" height="150" alt="'initial always looks easy peasy" src="https://github.com/user-attachments/assets/566dff33-f686-4212-afa0-24a4943f2a64" />
+
+
+### WTF KINDA WAX DID HE USE? d'term breakdown
+
+
+<img width="314" height="157" alt="GIF 2026-11-15 19-04-48" src="https://github.com/user-attachments/assets/a3395794-2f25-4463-9843-cdf382ead375" />
+
+
+<br />
 <br/>
 then the guideline is set when produkts matter, otherwise you hunt for kinetic'.
 
