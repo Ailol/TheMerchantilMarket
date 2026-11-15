@@ -7,14 +7,14 @@ politicians, medicine, school etc :)
 
 speedrunners haven. 
 
-### ʞet'[ nukleuz starter set]
-# qck.d'term in phibrez before merchantil makes sense
+## ʞet'[ nukleuz starter set]
+#### qck.d'term in phibrez before merchantil makes sense
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 <br/>
 <br/>
 <br/>
 
-# qck.human ' phibrez is
+## qck.human ' phibrez is
 ### t'spey, to learn the tiles
 feeling comes only on snake roll level, here itz' always "next throw is gonna be awesome."
 <img width="340" height="150" alt="'initial always looks easy peasy" src="https://github.com/user-attachments/assets/566dff33-f686-4212-afa0-24a4943f2a64" />
@@ -33,13 +33,14 @@ and you start playing with it :)
 <br />
 <br />
 <br />
-
+```
 s'bit{
   cet ' for the times to be fun
   ket ' addz to the moment
 }into(j'rit'bitz);
 ' the tasty bitz, jorit. 
 
+```
 ---
 Then starts the personal flavour to be 'signal. You see signs ;) 
 "you dont get guideline gear, thats for", for a noob, "no worries".
