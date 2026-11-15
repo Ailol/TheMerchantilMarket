@@ -35,7 +35,7 @@ speedrunners haven.
  <img width="35.4%" src="https://github.com/user-attachments/assets/75ae7e20-4f6f-48fe-b76b-4e12df6fecc8" />
 
  <img width="25%"  src="https://github.com/user-attachments/assets/e1510c3b-80bf-423d-aa8d-92a0b2193168" />
- <img width="23%" alt="workin the style'" src="https://github.com/user-attachments/assets/6ed7a388-3925-494e-b8de-f4cb83082dd8" />
+ <img width="23.5543.4%"  src="https://github.com/user-attachments/assets/6ed7a388-3925-494e-b8de-f4cb83082dd8" />
 
 
 
