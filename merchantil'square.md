@@ -2,6 +2,7 @@
 <div align="center">
  <sub><sub>Tia & Ailo Fieldz present the compacted cognition formula:</sub></sub>
 <h1> The compacted cognition(meaning of a interaction) </h1> 
+ 
 ```
 [i am a ] THEN comes a'term
  a' [[[[a'bit[⁰·¹].cetz(kv) to d.term(b'i'naя '「 fibrez[ᶠ'·°]'」]]]]]💟 
