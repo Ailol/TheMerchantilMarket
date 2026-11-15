@@ -54,8 +54,8 @@ prokzes are the 'ket notifz' from previous.
 </div>
 
 --- 
-
-# ʞ&ket ' 10.0000 hours
+<div align="center">
+# ʞ&ket ' the 10.0000 hours
 
 here is where the `qck` style comes in and you model based on the .env and deploy and everything is in centrik already. no need to checkup shit :) 
 
@@ -67,7 +67,7 @@ here is where the `qck` style comes in and you model based on the .env and deplo
 
 
 <sub>qck.merkantil is this, the toolset builder[the thorz' smith, a hammer is only as good as the smithener]</sub>
-
+</div>
 --- 
 # there is a markedly different one that is barely BARELY merchantil(im lazy, sue me ;**) 
 
