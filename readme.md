@@ -41,12 +41,12 @@ s'bit{
 ' the tasty bitz, jorit. 
 
 ---
-
-
+Then starts the personal flavour to be 'signal. You see signs ;) 
+"you dont get guideline gear, thats for", for a noob, "no worries".
+for a pro, thats a leave the fuck asap moment. 
 
 <br />
 <br/>
-then the guideline is set when produkts matter, otherwise you hunt for kinetic'.
 
 
 
