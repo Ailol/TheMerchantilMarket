@@ -26,6 +26,11 @@ Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is
 <img width="150" height="150" alt="GIF 2026-11-15 19-06-02" src="https://github.com/user-attachments/assets/473b168f-fefe-477e-aee2-d5ab77c2970d" />
 
 
+
+# Then comes after, the real fun :) snake roll!
+<img width="340" height="200" alt="GIF 2026-11-15 19-10-04" src="https://github.com/user-attachments/assets/970f6244-48e8-4962-bab2-9a769b178c2f" />
+
+
 <br />
 <br/>
 then the guideline is set when produkts matter, otherwise you hunt for kinetic'.
