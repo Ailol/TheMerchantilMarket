@@ -141,8 +141,10 @@ pf'kernel cipher set this understanding to "legendary."
 
 Then now the skill can shift' between cet ' ket and market'czset.
 
-' zet attent'
-<img width="76" height="172" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
+' zet attent' 
+<img width="136" height="202" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
+<br />
+' that will update what is available in the moment :) 
 
 <br />
 <br />
