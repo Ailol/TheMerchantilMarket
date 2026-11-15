@@ -81,21 +81,16 @@ as teknikally you can calculate a perfekt meal, however skill is still present i
 <br />
 
 ```
+' the tasty bitz, ljå'rit
+
+the turbulence of a trip is ljå'rit. you play with death if it goes wrong and never pick it up again :)
+
 s'bit{
   cet ' for the times to be fun
   ket ' addz to the moment
 }into(j'rit'bitz);
-' the tasty bitz, jorit. 
 
 ```
-
----
-Then starts the personal flavour to be 'signal. You see signs ;) 
-"you dont get guideline gear, thats for", for a noob, "no worries".
-for a pro, thats a leave the fuck asap moment. 
-
-<br />
-<br/>
 
 
 
@@ -103,7 +98,7 @@ for a pro, thats a leave the fuck asap moment.
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
 
-[! in essence is the gif vs the vid](https://www.instagram.com/p/Dfn6SEXxA0a/)
+[! essen'zik is the "original" vs "what was available now"] (https://www.instagram.com/p/Dfn6SEXxA0a/)
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
 ```
