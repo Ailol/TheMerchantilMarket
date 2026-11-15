@@ -141,5 +141,23 @@ pf'kernel cipher set this understanding to "legendary."
 
 Then now the skill can shift' between cet ' ket and market'czset.
 
-<img width="76" height="172"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+' zet attent'
 <img width="76" height="172" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
+
+<br />
+<br />
+qck.'def of(set)
+<img width="76" height="172"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" /> 
+<br />
+
+#### a palette of lil'zet of understanding about a day :) 
+' szet attent' primezs'cet  
+<img width="76" height="172" alt="errly morning" src="https://github.com/user-attachments/assets/8365b4ba-cf13-4e89-a83e-5e5e8fbb1478" />
+<img width="76" height="172" alt="running system" src="https://github.com/user-attachments/assets/04189e90-cdc0-49be-8ca2-ed1aab24b299" />
+<br />
+<br />
+
+# sometimes i HAVE to just smithen a idea to a tmp ' node then into github or somewhere, otherwise it becomes this:
+<img width="76" height="172"  alt="'big ideas thinker running" src="https://github.com/user-attachments/assets/cee47419-a02e-4595-8772-a6aaeea902c4" />
+
+
