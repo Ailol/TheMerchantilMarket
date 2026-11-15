@@ -61,6 +61,8 @@ here is where the `qck` style comes in and you model based on the .env and deplo
 
  `qck.cast ' qck.test ' qck.style ' qck.stil `
  <br /> 
+  <br /> 
+   <br /> 
 <img width="35.4%" src="https://github.com/user-attachments/assets/4d8e35db-7658-461a-bd1b-de940a976cd6" />
 
 
