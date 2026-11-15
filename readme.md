@@ -12,27 +12,36 @@ speedrunners haven.
 
 
 
-# qck.human ' ingrainment upgrade
-Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is the way, if you pro, well snake roll is the way.
-<br/>
-<br/>
-#### d'term needz room to wiggle initially. 
-#### t'snap is the "wax on"
+# qck.human ' phibrez is
+
+
+### t'spey, to learn the tiles
+feeling comes only on snake roll level, here itz' always "next throw is gonna be awesome."
 <img width="340" height="150" alt="'initial always looks easy peasy" src="https://github.com/user-attachments/assets/566dff33-f686-4212-afa0-24a4943f2a64" />
 
-
-### WTF KINDA WAX DID HE USE? d'term breakdown
+### Then starts the "beginners luck" to "hobby / work / career" chase:
 <img width="314" height="157" alt="GIF 2026-11-15 19-04-48" src="https://github.com/user-attachments/assets/a3395794-2f25-4463-9843-cdf382ead375" />
 
-### imma try it, d'term is important to learn from spey fishing :) i have found nothing more valuable than this sport
-### fly tying is like a fucking super advanced field as:
-### salmon changes vision from infrared to regular between sea and river. (and you create your own flies too as apart of the sport :)) 
+#### After mastering multi throws
 <img width="150" height="150" alt="GIF 2026-11-15 19-06-02" src="https://github.com/user-attachments/assets/473b168f-fefe-477e-aee2-d5ab77c2970d" />
 
+and you start playing with it :)
 
-
-# Then comes after, the real fun :) snake roll!
+# Then comes the "cream of the crop", snake roll
 <img width="300" height="200" alt="GIF 2026-11-15 19-10-04" src="https://github.com/user-attachments/assets/970f6244-48e8-4962-bab2-9a769b178c2f" />
+
+<br />
+<br />
+<br />
+
+s'bit{
+  cet ' for the times to be fun
+  ket ' addz to the moment
+}into(j'rit'bitz);
+' the tasty bitz, jorit. 
+
+---
+
 
 
 <br />
