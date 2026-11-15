@@ -27,7 +27,7 @@ speedrunners haven.
 
 
 
-##  qck.pfя'es
+###  qck.pfя'es
  <sub>я start workin on differentiation of interket'</sub>
  
  <img width="35.4%" src="https://github.com/user-attachments/assets/75ae7e20-4f6f-48fe-b76b-4e12df6fecc8" />
@@ -37,9 +37,11 @@ speedrunners haven.
 
 <div align="center">
 
-### fov'bit setz, and prokzes attunes to new threads in field
+## fov'b'chain setz and openz threadz to attune.
+prokzes are the 'ket notifz' from previous.
 
-`KRIIIIIST, WHAT YEAR IS IT?!?!` is the general feel after a deep dive into something.
+`KRIIIIIST, WHAT YEAR IS IT?!?!` is the general feel.
+<br />
 `WTF I DIVORCED? well, worth it.`
  
 <img width="35.4%" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
