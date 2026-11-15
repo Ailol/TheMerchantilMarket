@@ -56,6 +56,8 @@ for a pro, thats a leave the fuck asap moment.
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
 
+[! in essence is the gif vs the vid](https://www.instagram.com/p/Dfn6SEXxA0a/)
+
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
 ```
 d'termik[emc'setz the pace]
