@@ -7,6 +7,10 @@ politicians, medicine, school etc :)
 speedrunners haven. 
 
 
+# qck.d'term in phibrez before merchantil makes sense
+<img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+
+
 
 # qck.human ' ingrainment upgrade
 Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is the way, if you pro, well snake roll is the way.
@@ -35,7 +39,10 @@ Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is
 <br/>
 then the guideline is set when produkts matter, otherwise you hunt for kinetic'.
 
-<img width="232" height="400" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+
+
+# Then this one might make more sense' 
+<img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
