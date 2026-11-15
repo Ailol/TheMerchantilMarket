@@ -49,12 +49,17 @@ prokzes are the 'ket notifz' from previous.
 ` now come the trips, ʞettlez stable and cooking.`
  
 <img width="35.4%" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
+
+` now the hunt beginz among the pro `
 </div>
+--- 
+# ʞ&ket ' 10.0000 hours
+### The love that the e'tentz set, modelzs life forward
 
-#### and then smithenin' beginz of "your pro style."
+here is where the `qck` style comes in and you model based on the .env and deploy and everything is in centrik already. no need to checkup shit :) 
 
-# Then comes the "cream of the crop", snake roll
-<img width="470" height="253" alt="GIF 2026-11-15 20-00-18" src="https://github.com/user-attachments/assets/4d8e35db-7658-461a-bd1b-de940a976cd6" />
+ `qck.cast ' qck.test ' qck.style ' qck.stil `
+<img width="35.4%" src="https://github.com/user-attachments/assets/4d8e35db-7658-461a-bd1b-de940a976cd6" />
 
 --- 
 
