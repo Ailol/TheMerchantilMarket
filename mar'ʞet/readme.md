@@ -14,16 +14,31 @@ speedrunners haven.
 <br/>
 <br/>
 
-## qck.human ' phibrez is
-### t'spey, to learn the tiles
-feeling comes only on snake roll level, here itz' always "next throw is gonna be awesome."
-<img width="340" height="150" alt="'initial always looks easy peasy" src="https://github.com/user-attachments/assets/566dff33-f686-4212-afa0-24a4943f2a64" />
+## qck.human ' phibrez is only present if:
+#### Example of learning in 3 steps, nukleus, nukleusz and nuk'lz
+<sub>nuk'lz'[the interest setz into k'zetz and product interest becomes] </sub>
 
-### Then starts the "beginners luck" to "hobby / work / career" chase:
-<img width="314" height="157" alt="GIF 2026-11-15 19-04-48" src="https://github.com/user-attachments/assets/a3395794-2f25-4463-9843-cdf382ead375" />
+<img width="40%" alt="'initial always looks easy peasy" src="https://github.com/user-attachments/assets/566dff33-f686-4212-afa0-24a4943f2a64" />
+<img width="30%" alt="GIF 2026-11-15 19-04-48" src="https://github.com/user-attachments/assets/a3395794-2f25-4463-9843-cdf382ead375" />
+<img width="20%" height="150" alt="GIF 2026-11-15 19-06-02" src="https://github.com/user-attachments/assets/473b168f-fefe-477e-aee2-d5ab77c2970d" />
 
-#### After mastering multi throws
-<img width="150" height="150" alt="GIF 2026-11-15 19-06-02" src="https://github.com/user-attachments/assets/473b168f-fefe-477e-aee2-d5ab77c2970d" />
+<br/>
+<br/>
+<br/>
+<br/>
+
+
+
+##  qck.pfя'es
+ <sub>я start workin on differentiation of interket'</sub>
+ 
+ <img width="35.4%" src="https://github.com/user-attachments/assets/75ae7e20-4f6f-48fe-b76b-4e12df6fecc8" />
+
+ <img width="25%"  src="https://github.com/user-attachments/assets/e1510c3b-80bf-423d-aa8d-92a0b2193168" />
+ <img width="23%" alt="workin the style'" src="https://github.com/user-attachments/assets/6ed7a388-3925-494e-b8de-f4cb83082dd8" />
+
+
+
 
 and you start playing with it :)
 
