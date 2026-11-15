@@ -1,4 +1,4 @@
-# ʞ'merchantil
+<img width="640" height="392" alt="GIF 2026-11-15 20-01-44" src="https://github.com/user-attachments/assets/dd43c518-ea7b-4dac-9ae6-69628f1a841d" /># ʞ'merchantil
 
 
 
@@ -37,12 +37,24 @@ speedrunners haven.
  <img width="20.54%"  src="https://github.com/user-attachments/assets/6ed7a388-3925-494e-b8de-f4cb83082dd8" />
 
 
+<br />
+### The field of understanding finally opens, and you see the tilez to work on
+<img width="640" height="428" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
 
 
-and you start playing with it :)
+#### and then smithenin' beginz of "your pro style."
 
 # Then comes the "cream of the crop", snake roll
-<img width="300" height="200" alt="GIF 2026-11-15 19-10-04" src="https://github.com/user-attachments/assets/970f6244-48e8-4962-bab2-9a769b178c2f" />
+<img width="470" height="253" alt="GIF 2026-11-15 20-00-18" src="https://github.com/user-attachments/assets/4d8e35db-7658-461a-bd1b-de940a976cd6" />
+
+--- 
+
+
+
+<br />
+
+<img width="40.4%"  src="https://github.com/user-attachments/assets/9f5e0922-06f6-40ce-8b7a-4dbbf2360dd9" />
+<img width="25.4%" src="https://github.com/user-attachments/assets/6639d908-073a-4613-bdfd-5d565e379d89" />
 
 <br />
 <br />
