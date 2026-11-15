@@ -9,7 +9,9 @@ speedrunners haven.
 
 
 # qck.update to self
-<img width="291" height="343" alt="image" src="https://github.com/user-attachments/assets/1d7fbdda-95d4-4b3a-b03c-67127d1776bf" />
+<img width="231" height="293" alt="image" src="https://github.com/user-attachments/assets/1d7fbdda-95d4-4b3a-b03c-67127d1776bf" />
+
+<img width="120" height="50" alt="image" src="https://github.com/user-attachments/assets/d09601d2-93d3-4491-b5d9-897411261189" />
 
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
