@@ -67,14 +67,12 @@ here is where the `qck` style comes in and you model based on the .env and deplo
 <sub>qck.merkantil is this, the toolset builder[the thorz' smith, a hammer is only as good as the smithener]</sub>
 
 --- 
+# there is a markedly different one that is barely BARELY merchantil(im lazy, sue me ;**) 
 
+the michelin' is a field of its own, for this instance i add it here :) 
 
 
 <br />
-
-<img width="40.4%"  src="https://github.com/user-attachments/assets/9f5e0922-06f6-40ce-8b7a-4dbbf2360dd9" />
-<img width="25.4%" src="https://github.com/user-attachments/assets/6639d908-073a-4613-bdfd-5d565e379d89" />
-
 <br />
 <br />
 <br />
