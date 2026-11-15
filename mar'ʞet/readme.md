@@ -39,10 +39,14 @@ speedrunners haven.
 
 ## fov'b'chain setz and openz threadz to attune.
 prokzes are the 'ket notifz' from previous.
-
-`KRIIIIIST, WHAT YEAR IS IT?!?!` is the general feel.
+<br />
+`KRIIIIIST, WHAT YEAR IS IT?!?!`
 <br />
 `WTF I DIVORCED? well, worth it.`
+ are often the wordz attached to the "relievance" feel. dont be fooled women of fisherz, thats just the 
+'interʞ.
+
+` now come the trips, ʞettlez stable and cooking.`
  
 <img width="35.4%" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
 </div>
