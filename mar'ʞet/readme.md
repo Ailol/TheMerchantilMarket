@@ -36,7 +36,12 @@ speedrunners haven.
 
 
 <div align="center">
+
 ### fov'bit setz, and prokzes attunes to new threads in field
+
+`KRIIIIIST, WHAT YEAR IS IT?!?!` is the general feel after a deep dive into something.
+`WTF I DIVORCED? well, worth it.`
+ 
 <img width="35.4%" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
 </div>
 
