@@ -28,7 +28,7 @@ Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is
 
 
 # Then comes after, the real fun :) snake roll!
-<img width="340" height="200" alt="GIF 2026-11-15 19-10-04" src="https://github.com/user-attachments/assets/970f6244-48e8-4962-bab2-9a769b178c2f" />
+<img width="300" height="200" alt="GIF 2026-11-15 19-10-04" src="https://github.com/user-attachments/assets/970f6244-48e8-4962-bab2-9a769b178c2f" />
 
 
 <br />
