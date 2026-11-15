@@ -141,9 +141,11 @@ pf'kernel cipher set this understanding to "legendary."
 #### hobby vs merchantil'
 your 'defence' system is a  market'czset level of a thing, it can be used to other stuff when it is idling :) 
 <br />
-!word of advice. there are more ways to die than just a bullet and torture... </3
+<br />
+` !word of advice. there are more ways to die than just a bullet and torture... </3 `
 <br />
 ' zet attent' 
+<br />
 <br />
 <img width="136" height="202" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
 <br />
