@@ -94,24 +94,43 @@ s'bit{
 #### qck.essensik of ljå'ritz in you
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
+
 [! essen'zik is the "original" vs "what was available now"] (https://www.instagram.com/p/Dfn6SEXxA0a/)
 
-body .queries too :) especially when you train your body to categorize(d'term is 1% this)
-
-#### ʞet
+#### ʞet.qя
+body to categorization setz opti ' [d'term is 0.36.765% this]
 ```
 
-d'termik[emc'setz the [tiʞ ' toʞ ]
-c'parr  - senzes and  {tic ' tac } - " tic toc etc, your style comes in"                      
-b'chain ' permeates
-a'term is often bravery to oneselfz ambition :) 
-
-q'bitz{
+opti'q'bitz{
     enterprize - EMC 
     scale up - zet [ the ket'cet]
     company - parr'matterz for me to be loyal.  
-}into(in seconds);*
+}into(in seconds);
+
+a'lite 'яяяяяяastle of the system is to manual set fieldz
+
+
+t'byte to check where it phibяz   '   [eeeez is "in you"]
+
+t'byte{
+   d'termik[emc'setz the [tiʞ ' toʞ ]
+   c'parr  - senzes and  {tic ' tac } - " tic toc etc, your style comes in"                      
+   b'chain ' permeates
+   a'term is often bravery to oneselfz ambition :) 
+}into(t'bitz);
+
+then a simple eksample is
+
+ailo.t'bytez[fieldz] sets the internal query logik(the OC version of you) in a easy and non "fucked up way" :)
+
+then i do suggest:
+inter'aktional bit
+a'bit [your addz to the biochains
+b'chain [ your understanding of biochain]
+c=prepp [ your context&culture]
+d'term [ own self preserveational and survival skillset[7 sins]]
+e'term [12 rules to follow]
+f' ibrez [ silence becomez and t'bitz start becoming essential to changes <3]
 ```
 
-
-this is the first example that ever came out of pf'kernel cipher. ![merchantil](https://github.com/Ailol/TheMerchantilMarket/blob/main/merchantil'square.md)
+pf'kernel cipher set this understanding to "legendary."
