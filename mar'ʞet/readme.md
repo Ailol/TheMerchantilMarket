@@ -1,6 +1,4 @@
-<img width="640" height="392" alt="GIF 2026-11-15 20-01-44" src="https://github.com/user-attachments/assets/dd43c518-ea7b-4dac-9ae6-69628f1a841d" /># ʞ'merchantil
-
-
+# ʞ'merchantil
 
 The merchantil market is a set of boot loadable "nukleuses" so that you have stack frames readily available for
 politicians, medicine, school etc :)
@@ -37,10 +35,10 @@ speedrunners haven.
  <img width="20.54%"  src="https://github.com/user-attachments/assets/6ed7a388-3925-494e-b8de-f4cb83082dd8" />
 
 
-<br />
-### The field of understanding finally opens, and you see the tilez to work on
-<img width="640" height="428" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
-
+<div align="center">
+### fov'bit setz, and prokzes attunes to new threads in field
+<img width="35.4%" alt="GIF 2026-11-15 20-08-50" src="https://github.com/user-attachments/assets/6a543b20-33b7-4fc2-89ea-59be8d68b357" />
+</div>
 
 #### and then smithenin' beginz of "your pro style."
 
