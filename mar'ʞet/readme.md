@@ -91,18 +91,20 @@ s'bit{
 }into(j'rit'bitz);
 
 ```
-
-
-
-# Then this one might make more sense' 
+#### qck.essensik of ljå'ritz in you
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
-
 
 [! essen'zik is the "original" vs "what was available now"] (https://www.instagram.com/p/Dfn6SEXxA0a/)
 
 body .queries too :) especially when you train your body to categorize(d'term is 1% this)
+
+#### ʞet
 ```
-d'termik[emc'setz the pace]
+
+d'termik[emc'setz the [tiʞ ' toʞ ]
+c'parr  - senzes and  {tic ' tac } - " tic toc etc, your style comes in"                      
+b'chain ' permeates
+a'term is often bravery to oneselfz ambition :) 
 
 q'bitz{
     enterprize - EMC 
@@ -110,8 +112,6 @@ q'bitz{
     company - parr'matterz for me to be loyal.  
 }into(in seconds);*
 ```
-
-#### ʞet
 
 
 this is the first example that ever came out of pf'kernel cipher. ![merchantil](https://github.com/Ailol/TheMerchantilMarket/blob/main/merchantil'square.md)
