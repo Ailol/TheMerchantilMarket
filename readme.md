@@ -1,5 +1,7 @@
 # ket[Tɛk : Tɛʞ`], 
-### this is the first example that ever came out of pf'kernel cipher :) the merchantil is the supersekt of two merkantil ' sets interacting.
+this is the first example that ever came out of pf'kernel cipher. ![merchantil](https://github.com/Ailol/TheMerchantilMarket/blob/main/merchantil'square.md)
+
+
 
 The merchantil market is a set of boot loadable "nukleuses" so that you have stack frames readily available for
 politicians, medicine, school etc :)
