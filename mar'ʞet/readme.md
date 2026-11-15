@@ -52,14 +52,19 @@ prokzes are the 'ket notifz' from previous.
 
 ` now the hunt beginz among the pro `
 </div>
+
 --- 
+
 # ʞ&ket ' 10.0000 hours
-### The love that the e'tentz set, modelzs life forward
 
 here is where the `qck` style comes in and you model based on the .env and deploy and everything is in centrik already. no need to checkup shit :) 
 
  `qck.cast ' qck.test ' qck.style ' qck.stil `
+ <br /> 
 <img width="35.4%" src="https://github.com/user-attachments/assets/4d8e35db-7658-461a-bd1b-de940a976cd6" />
+
+
+<sub>qck.merkantil is this, the toolset builder[the thorz' smith, a hammer is only as good as the smithener]</sub>
 
 --- 
 
