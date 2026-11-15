@@ -93,6 +93,8 @@ s'bit{
 ```
 #### qck.essensik of ljå'ritz in you
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+<br />
+<br />
 
 <iframe height="578" width="325" src="https://www.tiktok.com/player/v1/7707053904130870536?embed_from=webapp_share&music_info=1&description=1&autoplay=1&muted=1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; fullscreen; gyroscope; picture-in-picture; web-share" title="The dead internet theory says most of what you read online is no longer written by people. It started as a forum conspiracy in 2021. Then the numbers caught up: about half of all web traffic is now bots. AI writes the posts, AI writes the replies, and AI likes them back. Shrimp Jesus gets thousands of amens and nobody typed a single one. The comment section still looks alive. It just stopped being a conversation. So when you find a typo in the replies, keep it. It might be the last proof that someone is still here. #deadinternet #internetculture #ai #touchdesigner #creativecoding" allowfullscreen loading="lazy"></iframe>
 
