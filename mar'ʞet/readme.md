@@ -71,13 +71,14 @@ here is where the `qck` style comes in and you model based on the .env and deplo
 --- 
 # there is a markedly different one that is barely BARELY merchantil(im lazy, sue me ;**) 
 
-the michelin' is a field of its own, for this instance i add it here :) 
+[the michelin']( is a field of its own, for this instance i add it here :) 
 
 
 <br />
 <br />
 <br />
 <br />
+
 ```
 s'bit{
   cet ' for the times to be fun
@@ -86,6 +87,7 @@ s'bit{
 ' the tasty bitz, jorit. 
 
 ```
+
 ---
 Then starts the personal flavour to be 'signal. You see signs ;) 
 "you dont get guideline gear, thats for", for a noob, "no worries".
