@@ -18,9 +18,12 @@ Kinetic is always a t'snap or snake roll moment. if you suck at wordz, t'snap is
 
 
 ### WTF KINDA WAX DID HE USE? d'term breakdown
-
-
 <img width="314" height="157" alt="GIF 2026-11-15 19-04-48" src="https://github.com/user-attachments/assets/a3395794-2f25-4463-9843-cdf382ead375" />
+
+### imma try it, d'term is important to learn from spey fishing :) i have found nothing more valuable than this sport
+### fly tying is like a fucking super advanced field as:
+### salmon changes vision from infrared to regular between sea and river. (and you create your own flies too as apart of the sport :)) 
+<img width="150" height="150" alt="GIF 2026-11-15 19-06-02" src="https://github.com/user-attachments/assets/473b168f-fefe-477e-aee2-d5ab77c2970d" />
 
 
 <br />
