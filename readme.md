@@ -8,7 +8,7 @@ speedrunners haven.
 
 
 
-# qck.gif to understand "a3b" 
+# qck.gif to understand "a3b" ' kinetism happens on 'uniq wordz, not on blabbermouths :) 
 <img width="232" height="400" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 
 
