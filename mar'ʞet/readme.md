@@ -96,7 +96,9 @@ s'bit{
 <br />
 <br />
 
-<iframe height="578" width="325" src="https://www.tiktok.com/player/v1/7707053904130870536?embed_from=webapp_share&music_info=1&description=1&autoplay=1&muted=1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; fullscreen; gyroscope; picture-in-picture; web-share" title="The dead internet theory says most of what you read online is no longer written by people. It started as a forum conspiracy in 2021. Then the numbers caught up: about half of all web traffic is now bots. AI writes the posts, AI writes the replies, and AI likes them back. Shrimp Jesus gets thousands of amens and nobody typed a single one. The comment section still looks alive. It just stopped being a conversation. So when you find a typo in the replies, keep it. It might be the last proof that someone is still here. #deadinternet #internetculture #ai #touchdesigner #creativecoding" allowfullscreen loading="lazy"></iframe>
+<img width="360" height="640" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
+
+
 
 [! essen'zik is the "original" vs "what was available now"] (https://www.instagram.com/p/Dfn6SEXxA0a/)
 
