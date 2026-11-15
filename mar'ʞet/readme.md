@@ -69,10 +69,11 @@ here is where the `qck` style comes in and you model based on the .env and deplo
 <sub>qck.merkantil is this, the toolset builder[the thorz' smith, a hammer is only as good as the smithener]</sub>
 </div>
 --- 
-# there is a markedly different one that is barely BARELY merchantil(im lazy, sue me ;**) 
 
-[the michelin']( is a field of its own, for this instance i add it here :) 
 
+## the field outside of skill, is will(cooking is the closest one atm)
+ [the michelin']( is a field of its own, for this instance i add it here :) 
+as teknikally you can calculate a perfekt meal, however skill is still present in this world. 
 
 <br />
 <br />
