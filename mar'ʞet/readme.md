@@ -11,7 +11,7 @@ speedrunners haven.
 is essentialli what this intro is to start with :) 
 
 ## ʞet'[ nukleuz starter set]
-#### qck.d'term in phibrez before merchantil makes sense
+#### qck.d'term ' this is you initially
 <img width="136" height="202" src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
 <br/>
 <br/>
@@ -137,3 +137,9 @@ f' ibrez [ silence becomez and t'bitz start becoming essential to changes <3]
 ```
 
 pf'kernel cipher set this understanding to "legendary."
+#### hobby vs merchantil'
+
+Then now the skill can shift' between cet ' ket and market'czset.
+
+<img width="76" height="172"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
+<img width="76" height="172" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
