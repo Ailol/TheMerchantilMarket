@@ -3,8 +3,11 @@ the body producez on a basis of child safety at all timez until a c^parr level o
 
 D'N'A  tests and sites like prometheus[2017 is last update on how good itnis]
 dont trust 'gene & me, each gene is essentially unique. body will find the knowledge valuable when it zets a 'macular signifikant' the p value is nice to respekt and understand 😊 magnidute is to 'gauge.
+
+```
 magnitude is ≡
 signifikant is = 
+```
 
 #### pf'kernel[the child mode] vs pf'erniket[the c'prepped mode] 
 <img width="136" height="202"  src="https://github.com/user-attachments/assets/7dcc707b-3010-4213-ae08-bc1c592e31f3" />
