@@ -138,8 +138,8 @@ qck.phibre update
 a' 
 b'
 c'
-đ
-e⅗
-f
+def(ıt)
+
+
 ```
 as body and mind aktually restz 10x; then also do it in messenger chatd with empty space(its like 100% improvemeng💛
