@@ -1,3 +1,16 @@
+abc' affine cipherz build on c'parr
+<bytewise op ^= setz on genetikal and geneticz can optimize on auto procz.>
+over time a simple bioz model zettlez. 
+ 
+ qck.r'y tezst. 
+ ⊂p'givenz'q⊃
+ 
+⊂⊃ < c'parr <the given setz in 'think'g' levelz<g'k < k'g>> as phibrez stop compenszating for nucleus travel. 
+ 
+
+d'term &  d'kode setz the affine cipher 
+d&d is the skeez paL[f ⊂⊃ λ ]Гa is the definit' 
+
 
 # hello! Welcome to my show; i present my dish;
 
