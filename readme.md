@@ -58,7 +58,9 @@ its a michelin pascal precizness makron tasting and sugar tenderness needed to h
 
 
 
-# the pascal ' once is <mstyle displaystyle="true"> <mo>&#x221E;</mo> </mstyle></math>
+# the pascal ' 
+### <the mar'ket of o'dourves managed in the pressure of michelin>
+#### once is <mstyle displaystyle="true"> <mo>&#x221E;</mo> </mstyle></math>
 " the soft ice cream had a uniq anti inflammatory; i dont know how but it just croszed bbb? crazy fucking french; masters in food 💛"
 
 this my 'makron; in hopes you can taste the skill in 'certain sets he presents in oslo. 
