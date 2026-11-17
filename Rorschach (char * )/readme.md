@@ -1,4 +1,4 @@
-# Since all is hackewd is tihis as a exammple, that rorschach i stand corrected on, it works :)
+# Since all is hacked is this as a example, that rorschach i stand corrected on, it works :)
 
 Fibre [processik]
 
