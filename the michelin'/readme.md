@@ -20,7 +20,8 @@ genes do not change[2026] they do express differently💛
 the lite version of you is likd wearing super light shoes to the right eventsz'cet.
 and suddenly medicine & øsych becomes a joy 💛
 
-<img width="45%" alt="AISelect_20261117_062218_Instagram" src="https://github.com/user-attachments/assets/fc8245ac-53a1-4c18-b670-052ef3f8ac44" />
+<img width="922" height="368" alt="AISelect_20261117_062218_Instagram" src="https://github.com/user-attachments/assets/2d616af5-4b46-4e22-8faf-55a8985324e0" />
+
 
 
 The partiklez of mol and culo [setz and ketz not apart even here] :)
