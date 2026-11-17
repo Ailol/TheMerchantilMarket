@@ -1,6 +1,12 @@
 
-# hello! Welcome to my show; i present my dish; 
+# hello! Welcome to my show; i present my dish;
+#### i love that the bounty is we found out; c^prepp of <genes & truthz> is necessary as the ever so brave us 
+#### is kurrenrlt running deep ops to under these levels. but ivy'leagues seem to have mutinied against all securiry. 
 
+for the record only because andersen lastname and us army size have i been able to do this 💛 ty 
+
+
+#### hehehe pride and joy of kuru; The scammer ' useful for blackz to keep tension im nuklez levels
 the indian army; the participantaloons; the 'almost troopz
 
 the brave: the raid ' 
@@ -68,6 +74,7 @@ this my 'makron; in hopes you can taste the skill in 'certain sets he presents i
 c^parr is to go AWAY from 'self soothing; as internal processes need honesty on what f.eks
 blue eyes are vs brown(a macular dysfunction has been coined; so attent' til the reʞon figurez out the truth>
 
+
 ```
 
 a'rtifical is always <you trying your best 💛> | the artist<lifes hard; to make it fun is your self to ket] 
@@ -78,6 +85,22 @@ e⅗ < mind is part ' partiklez; physicz; memory and images are either biochaine
 f'it(tea is often the "oh i need to tell someone about this and how it helped me") as the fit is just that good 😊💛
  " the affinity & me is quartikle level of fit & beyond until s ' t comez along[pferniket]
 ```
+
+
+as 
+s'bit {
+  suga ' givenz in c'parr do not fibre[change produkt]
+  spicy ' the yield now can work on advanced 'nice to have'
+}into(3 fieldz theory);
+
+the 3 fieldz is to optimize cyp450 level of circulatory systems etc 😊
+ .necessity[portz] eks. < 1 day without programming is bad for me> over time it yields a port 💛
+ ' nice to have [wifi + portz] <time & family comes in>
+ ' in distant distant future[if it so be 💛] <weekendz and hobbiezs.>
+
+
+
+
 then comes the bootload sig; the proper field to enjoy is the amerika. AI field wirh
 
 'attention is all you need. i have added a word to qck.иuk'chain [czk'pferniket(xompact to k)] 
