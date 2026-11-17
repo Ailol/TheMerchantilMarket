@@ -2,10 +2,10 @@
 the body producez on a basis of child safety at all timez until a c^parr level of truth comes out.
 
 D'N'A  tests and sites like prometheus[2017 is last update on how good itnis]
-dont trust 'gene & me, each gene is essentially unique. body will find the knowledge valuable when it zets a 'macular signifikant' the p value is nice to respekt and understand 😊 magnitute is to 'gauge.
+dont trust 'gene & me, each gene is essentially unique. body will find the knowledge valuable when it zets a 'macular signifikant' the p value is nice to respekt and understand 😊 magnitude is to 'gauge.
 
 ```
-magnitude is ≡ explorativ' more for the god parts afger the 'ip is been set as fixed.
+magnitude is ≡ explorativ' more for the god parts after the 'ip is been set as fixed.
 signifikant is = to ack that f.eks blue eyes is lesser than brown due to macular disease.
 ```
 
