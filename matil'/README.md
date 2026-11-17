@@ -1,4 +1,7 @@
-# matil' · the matrix merchantil
+' force upd from znor'ke(norwegian commint cipherz data to cartellz 🥲 sad)
+
+
+#matil' · the matrix merchantil
 
 Ailo describes developing the underlying practice from **2013 to 2021**. This edition reconstructs the notation and worked moments described in the November 2026 discussion. The earlier dates record the author's account of the work. The available material for this edition is the discussion and its gauge table, so the dates do not date individual operators or establish experimental results.
 
