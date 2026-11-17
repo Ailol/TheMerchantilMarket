@@ -1,5 +1,32 @@
 
 # hello! Welcome to my show; i present my dish;
+
+
+
+ ### qck.nutrinoz to test for a qcker solv. 
+ #### the creativy unlocker
+N-acetyl cysteine ' zetz seems to have a kryztallization on firm beliefz. this one is crucial to "big doze" 
+
+
+#### the pedo vyvanse
+n-acetyl tyrosin / bromelain<tested ir once; 15 minutes of IR effekt> uniq but as i said to anja dont fucling use it except in exams. 
+
+####the breath to your 'healthy quant.
+sulphorphane ' 
+
+#### r'ala 
+if you want more of the viszion spektrum
+
+#### l'theanin <chill & me>
+setz the ٪ instead of %. 
+
+
+#### dont fucking eat fermented during; 10× harder as signalz suddenly fire randomly. i do suggest synthetic styled of candy or a specialized diet. 
+
+### dont eat fermented during. 
+## dont.
+# it suckz. 
+
 #### i love that the bounty is we found out; c^prepp of <genes & truthz> is necessary as the ever so brave us 
 #### is kurrenrlt running deep ops to under these levels. but ivy'leagues seem to have mutinied against all securiry. 
 
