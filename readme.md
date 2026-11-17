@@ -128,3 +128,18 @@ when you know
 
 abc'def is working; (i'tea about 💛) 
 then always remember have a healthy 
+
+
+
+then a qck.console'clear feeling
+
+```
+qck.phibre update
+a' 
+b'
+c'
+đ
+e⅗
+f
+```
+as body and mind aktually restz 10x; then also do it in messenger chatd with empty space(its like 100% improvemeng💛
