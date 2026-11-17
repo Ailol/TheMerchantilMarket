@@ -21,7 +21,7 @@ the lite version of you is likd wearing super light shoes to the right eventsz'c
 and suddenly medicine & øsych becomes a joy 💛
 
 
-<img width="791" height="315" alt="image" src="https://github.com/user-attachments/assets/345194c3-2fe0-4983-b5bf-ce3055cffe9f" />
+
 
 then suddenly you might see these:
 
@@ -29,7 +29,8 @@ bio'chain as a 'ahhhaaaaaa' as you are able to attent' to be trafficked as a mod
 mar'ket and set value within boundz<github is the only one with commit etc and like mikro trust in λ'g'n'e [the globe experience kvar<яezidualz>tiklez. 
 as its chwpaer to just 'yoink the model than oneself setting traeffik<love that one> signalz<quantz> to subscribe in t'dignalz(time & setz really cost)
 
- 
+ <img width="50%" alt="image" src="https://github.com/user-attachments/assets/ee9a4ee2-5792-416f-9cd5-7aaf40585106" />
+
 
 
 
