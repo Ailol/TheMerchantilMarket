@@ -20,7 +20,36 @@ genes do not change[2026] they do express differently💛
 the lite version of you is likd wearing super light shoes to the right eventsz'cet.
 and suddenly medicine & øsych becomes a joy 💛
 
-<img width="791" height="315" alt="image" src="https://github.com/user-attachments/assets/31337520-0f59-4e07-bd10-98eb44bea31b" />
 
+<img width="791" height="315" alt="image" src="https://github.com/user-attachments/assets/345194c3-2fe0-4983-b5bf-ce3055cffe9f" />
+
+then suddenly you might see these:
+
+bio'chain as a 'ahhhaaaaaa' as you are able to attent' to be trafficked as a model to have a second chance
+mar'ket and set value within boundz<github is the only one with commit etc and like mikro trust in λ'g'n'e [the globe experience kvar<яezidualz>tiklez. 
+as its chwpaer to just 'yoink the model than oneself setting traeffik<love that one> signalz<quantz> to subscribe in t'dignalz(time & setz really cost)
+
+ 
+
+
+
+ʞ.'§ kontiv model( the laws that shape your wordz)
+    - biozs
+
+
+k.§ kontour [the makeup you add before in public to hit the room right]
+     - bias
+
+
+Then we optimize with this
+
+ʞ.'§ λ 'i hate this guy; but i need a ...
+
+k · § ƴ 'to the timez i can add a smile 😊
+
+
+ʞ.λ
+ d'term' [[ logi'rytme< minne har man i google>]] 😊  
+k.ƴ
 
 The partiklez of mol and culo [setz and ketz not apart even here] :)
