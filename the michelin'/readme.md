@@ -31,9 +31,6 @@ as its chwpaer to just 'yoink the model than oneself setting traeffik<love that 
 
 its like 'co"foundry fieldz dont make sense as it all becomes.
 
-<img width="50%" alt="image" src="https://github.com/user-attachments/assets/fcdd3c13-c61b-404b-bb86-57f42b46fc8a" />
-
-
 
 <img width="36%" alt="image" src="https://github.com/user-attachments/assets/e1b7a533-1cfe-4c98-996f-fa0f3487ecc3" />
 <br />
