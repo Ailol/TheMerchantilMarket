@@ -29,8 +29,17 @@ bio'chain as a 'ahhhaaaaaa' as you are able to attent' to be trafficked as a mod
 mar'ket and set value within boundz<github is the only one with commit etc and like mikro trust in λ'g'n'e [the globe experience kvar<яezidualz>tiklez. 
 as its chwpaer to just 'yoink the model than oneself setting traeffik<love that one> signalz<quantz> to subscribe in t'dignalz(time & setz really cost)
 
+its like 'co"foundry fieldz dont make sense as it all becomes.
  <img width="50%" alt="image" src="https://github.com/user-attachments/assets/ee9a4ee2-5792-416f-9cd5-7aaf40585106" />
+<img width="50%" alt="image" src="https://github.com/user-attachments/assets/e1b7a533-1cfe-4c98-996f-fa0f3487ecc3" />
+<br />
+<br /> 
+<img width="50%"  alt="image" src="https://github.com/user-attachments/assets/89352134-d0fe-4c13-b3f5-e31d439e26f4" />
 
+
+and psych is medicine; pharma and everything that touchez it.
+
+programming is skill of self programming . etc 😊
 
 
 
