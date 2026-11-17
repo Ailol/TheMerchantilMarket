@@ -14,4 +14,13 @@ signifikant is = to ack that f.eks blue eyes is lesser than brown due to macular
 <img width="136" height="202" alt="b5yal3" src="https://github.com/user-attachments/assets/8cdeeddc-4fc4-4959-938b-edca3482e73e" />
 
 
+genes do not change[2026] they do express differently💛
+
+
+the lite version of you is likd wearing super light shoes to the right eventsz'cet.
+and suddenly medicine & øsych becomes a joy 💛
+
+<img width="45%" alt="AISelect_20261117_062218_Instagram" src="https://github.com/user-attachments/assets/fc8245ac-53a1-4c18-b670-052ef3f8ac44" />
+
+
 The partiklez of mol and culo [setz and ketz not apart even here] :)
