@@ -26,6 +26,7 @@ the qck.quant<knowledge in advanced currently is accepted as a sudo finished; bu
 
 qck.note % brain; operat'(interp[use proc for else]) ; observ(does mind sense become easier?)
 
+```
 qck.phibre update
 a' 
 b'
@@ -33,6 +34,8 @@ c'
 đ
 e⅗
 f
+``` 
+
 
 before; fight or flight is automatic; geneticz. c'parr is to set is this genetikal(as body constantly is doing things) oe is ir genetical(k intikates interket spaze(the 2025 car repair) vs the old veterans of 71(space to wiggle)
 k is mil. c is 'civilian
@@ -63,16 +66,16 @@ this my 'makron; in hopes you can taste the skill in 'certain sets he presents i
 c^parr is to go AWAY from 'self soothing; as internal processes need honesty on what f.eks
 blue eyes are vs brown(a macular dysfunction has been coined; so attent' til the reʞon figurez out the truth>
 
+```
 
 a'rtifical is always <you trying your best 💛> | the artist<lifes hard; to make it fun is your self to ket] 
-
 b'chain<what processing and queue you have to ser into artificially joining the chain>
 c'prepp <c^parr setz dedicated service threads to genetical 'errorz.. blue eyes? huge.one hahaha>
 d'term is the first 'deployable stage' or a great one is 'magic til magik' as k is tek(non 'invasive medical tek) 
 e⅗ < mind is part ' partiklez; physicz; memory and images are either biochained to eyes; or can you talk to you friend in their and their outsidd reactz?> 😊
 f'it(tea is often the "oh i need to tell someone about this and how it helped me") as the fit is just that good 😊💛
  " the affinity & me is quartikle level of fit & beyond until s ' t comez along[pferniket]
-
+```
 then comes the bootload sig; the proper field to enjoy is the amerika. AI field wirh
 
 'attention is all you need. i have added a word to qck.иuk'chain [czk'pferniket(xompact to k)] 
@@ -82,16 +85,21 @@ attent' setz the иuk spider[szpi pfяn'ikv'uet] to be qck.byte mode. 💛
 
 ### ьit union <greatests bunz ever> aint michelin but still competes
 <equalli important to have a fast food one vs michelin in body> 
+
+ ```
 a'ttent 
 b'kain[here comes already the setz of changes; even before memory and all]
 c'parr <givenz of known decay faʞtorz that d'term λ'krew needs to 'attent morenoften or detail a portik proszedyя) 
 d'term then can if a proper c'parr<genetikal faktory and factory changes to adjust я to R or R я<try to program google searchbar and the database in head w/o knowledge[artificially] and if a c'parr problem is present; the d'term will stall]
  e⅗ is the goal: however aphasia exists( some see imagez; others dont 💛 i choze to de'evolv and dedicate that process to other stuff as i like eyez and healthier mind)
-
 f'er'nıķet is ' molder <myldra> is a great zekt of tre'parr( bio'me essentially) 😊
-
+```
+ 
 as myldre is to accept that abc'def( it' the lite update)
 molder and beyond is really to pick scabies levels in co'parrzs(u & i; that truth of effekt is base foundry of modz.) id you open all(death is not unwelcome after 💛) 
 
 
+when you know
+
+abc'def is working; (i'tea about 💛) 
 then always remember have a healthy 
