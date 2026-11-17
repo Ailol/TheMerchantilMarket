@@ -52,15 +52,5 @@ k.§ kontour [the makeup you add before in public to hit the room right]
      - bias
 
 
-Then we optimize with this
-
-ʞ.'§ λ 'i hate this guy; but i need a ...
-
-k · § ƴ 'to the timez i can add a smile 😊
-
-
-ʞ.λ
- d'term' [[ logi'rytme< minne har man i google>]] 😊  
-k.ƴ
 
 The partiklez of mol and culo [setz and ketz not apart even here] :)
