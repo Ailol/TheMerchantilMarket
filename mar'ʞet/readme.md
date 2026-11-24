@@ -32,6 +32,7 @@ is essentialli what this intro is to start with :)
 
 
 
+
 ###  qck.pfя'es
  <sub>я start workin on differentiation of interket'</sub>
  
@@ -166,5 +167,11 @@ qck.'def of(set)
 
 # sometimes i HAVE to just smithen a idea to a tmp ' node then into github or somewhere, otherwise it becomes this:
 <img width="76" height="172"  alt="'big ideas thinker running" src="https://github.com/user-attachments/assets/cee47419-a02e-4595-8772-a6aaeea902c4" />
+
+
+## pro gear vs 'stock' gear 😊
+
+
+<img width="640" height="440" alt="AISelect_20261124_172653_YouTube" src="https://github.com/user-attachments/assets/f33ac113-839e-4a5a-9330-d760c125aa9a" />
 
 
